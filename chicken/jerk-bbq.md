@@ -13,7 +13,8 @@
 * 35g (7 cloves) garlic pressed
 * 500g chicken (peffereably thighs) cut into moderately sized cubes
 * salt
-* pepper
+* black pepper
+* red pepper
 * flavorless oil with high smoke point
 
 ## Directions
@@ -24,5 +25,5 @@
 5. Add garlic and cook till fragrant.
 6. Add the sauce to the pan and simmer until thick.
 7. Add the chicken back into the pan.
-8. Add salt and pepper to taste. Add more vinegar/lemon juice to taste.
+8. Add salt, black pepper, and red pepper to taste. Add more vinegar/lemon juice to taste.
 9. Stir in honey and maple syrup.
